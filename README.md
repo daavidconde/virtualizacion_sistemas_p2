@@ -1,2 +1,2 @@
-David Conde Salado
+David Conde Salado y
 Juan Edriss Bueno Smidi
